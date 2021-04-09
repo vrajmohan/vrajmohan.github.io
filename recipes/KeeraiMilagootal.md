@@ -15,5 +15,5 @@ title: Keerai Milagootal
 ## Instructions
 1. Boil frozen spinach well
 1. Cook 2 rasam karandis of moong dhal (can use toor dhal also)
-1. Grind 1 karandiful coconut, 2 milagai vetthals, 1/2 tsp jeera, dry roasted urad dhal and spinach
+1. Grind 1 karandiful coconut, 2 milagai vetthals, 1/2 tsp. jeera, dry roasted urad dhal and spinach
 1. Splutter mustard seeds and urad dhal with curry leaves and add

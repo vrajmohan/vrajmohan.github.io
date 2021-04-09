@@ -19,7 +19,7 @@ title: Arachchu Utta Sambar
 
 ## Instructions
 1. Roast 5 grains of methi and 1 tbsp. of channa dhal in a little oil
-1. After a minute, add 1 tbsp of dhania and roast some more
+1. After a minute, add 1 tbsp. of dhania and roast some more
 1. Add 10 milagai vetthal and continue roasting
 1. Add 3-4 tbsp. of grated coconut and continue roasting
 1. Set aside and wait for it to cool
